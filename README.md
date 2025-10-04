@@ -42,6 +42,7 @@ I am a pharmacy professional and research enthusiast with expertise in pharmacol
 * **GPAT Qualified** – 2022 (AIR-15116), 2023 (AIR-24168)
 * **Swasthya Con 2025** – 3rd Rank Poster Presentation (*GLP-1 Agonists for Parkinson’s Disease Management*)
 * Selected for **GSBTM Life Science Crash Course 2025** (MSU Baroda)
+* (NIPER SAS.jpeg)
 
 ---
 
