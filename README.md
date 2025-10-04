@@ -59,7 +59,6 @@ I am a pharmacy professional and research enthusiast with expertise in pharmacol
 * Rajasthan Pharmacist Licence – *2024*
 * Data Analytics – Teachnook
 * Good Clinical Practice – Novartis
-  (/GCP_page-0001.jpg)
 * Tata Group Forage Simulation: *Data Visualization for Business Insights*
 
 ---
